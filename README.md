@@ -1,0 +1,1 @@
+thsi is a batch recovory tool made by me. both things reqirer admin and i havve tested and used password reset so i know that work it will be updated as much as possibe sorry for spelling im running out of time so im typeing faster  than normel.
